@@ -31,3 +31,14 @@ their motion is random. This transition is quantified by an order parameter simi
 
 
 
+https://github.com/So-mo-on/Collective-Motion/assets/71309528/0e521469-0e29-45e0-97f4-e49795abd49c
+
+
+
+
+
+https://github.com/So-mo-on/Collective-Motion/assets/71309528/c06cb8af-7332-4a61-934d-e80b6c6458f9
+
+
+
+
